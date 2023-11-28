@@ -6,3 +6,5 @@ https://docs.google.com/document/d/1UL1OxxG-0p3MwlIbSxKWEX5DmJeX46v9jpr_YLZg_Cc/
 https://docs.google.com/document/d/104jqEwMvztzJ-bF5itJl_B16B2yrfUXmTypoB3fyxSk/edit
 https://digitaldictation.storage.yandexcloud.net/10/n1982732.pdf
 https://docs.google.com/document/d/19Llsha-dcDMAOpZAjafTJY0AzGNjtbPWTxzDLRvjdLE/edit
+лекция 09.01
+https://docs.google.com/document/d/104jqEwMvztzJ-bF5itJl_B16B2yrfUXmTypoB3fyxSk/edit
